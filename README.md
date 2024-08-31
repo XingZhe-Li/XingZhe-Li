@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @XingZhe-Li
-- 🏫 Well, I'm still a student in senior high.
+- 🏫 Well, I'm still a student @ CSU
