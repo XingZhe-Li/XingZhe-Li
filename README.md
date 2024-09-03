@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @XingZhe-Li
-- 🏫 Well, I'm still a student @ CSU
+- 🏫 Well, I'm a freshman @ CSU
