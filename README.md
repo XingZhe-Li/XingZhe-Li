@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @XingZhe-Li
-- 🏫 Well, I'm a sophomore @ CSU
+- 🏫 Well, I'm a junior @ CSU
